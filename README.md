@@ -1,2 +1,0 @@
-# MagamadNoFountMOM
-MagamadNoFountMOM
